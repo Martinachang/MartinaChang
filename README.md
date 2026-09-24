@@ -32,3 +32,4 @@ Figma · Adobe XD · Adobe Illustrator · Adobe After Effects · Adobe Premiere 
 * Portfolio: https://martinachang.github.io/portfolio-2026/
 * LinkedIn: https://www.linkedin.com/in/martina-chang-9a8652354/
 
+📍 Taipei, Taiwan · 🗣️ Mandarin Chinese / English (B2) / Japanese (N3)
